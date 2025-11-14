@@ -4,6 +4,6 @@
 - 🌱 I’m currently learning about life i guessssss
 - 🩷 I also love to make apps and bots for people
 - 📫 Contact me here: outlanderess@protonmail.com
-- 📱 Contact me here: <@&554744999728775168>
+- 📱 Contact me here on Discord: <@&554744999728775168> / anoutlander
 - 🙋‍♀️ Pronouns: She/her
 - 💭 Fun fact: I have been known to eat jalapenos from the jar
