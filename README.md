@@ -5,5 +5,6 @@
 - 🩷 I also love to make apps and bots for people
 - 📫 Contact me here: outlanderess@protonmail.com
 - 📱 Contact me here on Discord: <@&554744999728775168> / anoutlander
+- 🔗 DZHaRP Xbox DayZ server (contact me here too) - https://discord.gg/XJPP8ntgsV
 - 🙋‍♀️ Pronouns: She/her
 - 💭 Fun fact: I have been known to eat jalapenos from the jar
