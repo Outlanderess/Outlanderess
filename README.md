@@ -2,9 +2,9 @@
 - 👀 I do coding and run a DayZ Xbox server and do the files and lore there
 - ⚡ I program all sorts and code lots of things
 - 🌱 I’m currently learning about life i guessssss
-- 🩷 I also love to make apps and bots for people
+- 🩷 I also love to help people out and share whatever helpful stuff I can
 - 📫 Contact me here: outlanderess@protonmail.com
 - 📱 Contact me here on Discord: <@&554744999728775168> / anoutlander
 - 🔗 DZHaRP Xbox DayZ server (contact me here too) - https://discord.gg/XJPP8ntgsV
 - 🙋‍♀️ Pronouns: She/her
-- 💭 Fun fact: I have been known to eat jalapenos from the jar
+- 💭 Fun fact: Me metalhead
